@@ -5,6 +5,8 @@ Email 1 : arakeliantakvor@gmail.com
 
 Email 2 : takvorarakelian@lveblockchain.org
 
+Email 3 : takvor_arakelian@protonmail.com
+
 LinkedIn profile : https://www.linkedin.com/in/takvorarakelian
 
 Social & Contact info : https://linktr.ee/TakvorArakelian
