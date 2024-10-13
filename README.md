@@ -1,9 +1,9 @@
 ## Hi there 👋
 
 
-email 1 : arakeliantakvor@gmail.com
+Email 1 : arakeliantakvor@gmail.com
 
-email 2 : takvorarakelian@lveblockchain.org
+Email 2 : takvorarakelian@lveblockchain.org
 
 LinkedIn profile : https://www.linkedin.com/in/takvorarakelian
 
